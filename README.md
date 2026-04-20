@@ -1,4 +1,4 @@
-‎![kings][the kings faithful followers counter on GitHub](https://komarev.com/ghpvc/?username=HARRlNGTON)
+‎![the kings faithful followers counter on GitHub](https://komarev.com/ghpvc/?username=HARRlNGTON)
 
 ‎‎
 ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ![](https://i.pinimg.com/originals/62/10/30/621030367be6a37bdd22db7fc38746a5.gif) ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ 
