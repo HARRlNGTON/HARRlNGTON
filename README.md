@@ -1,10 +1,14 @@
 ![viewcounter](https://komarev.com/ghpvc/?username=HARRlNGTON)
 ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎
  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎<p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1497270737709306000/1528460396401397860/fangel.png?ex=6a5e612b&is=6a5d0fab&hm=af3d61fde43acb34560a0d5664a853b771bd37f49262255c5e5d3f168ea73c0f&" height="300" width="200" alt="suprenatrl"/>
+  <img src="https://i.pinimg.com/1200x/28/02/32/280232d9ad1d88e6ec044cb79e91fd90.jpg" height="100" width="200" alt="suprenatrl"/>
   </p>
 ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ 
 <p align="center"> <a href="https://letterboxd.com/hawkins1985/">letterboxd</a>‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ <a href="https://rentry.co/stoneangell">rentry</a>‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ <a href="https://pureharrington.straw.page/">strawpage</a> </p>
   </p>
+
+ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ 
+  
+<p align="center">
 <img src="https://camo.githubusercontent.com/8950daa8e8ee145b19684e8f48934f5af8126b6f33c9d4261c234824b27f3f2f/68747470733a2f2f6d65646961332e67697068792e636f6d2f6d656469612f76312e59326c6b505463354d4749334e6a45784e6d5233655468694e6d39744e3246784e3230774d486472595763304e6e4e754d6a567962585a75646d52775a4731686557497859795a6c634431324d563970626e526c636d35686246396e61575a66596e6c666157516d593351395a772f35364e64435575656c526b4845356862364a2f67697068792e676966" height="70" width="120" alt="suprenatrl"/>
   </p>
