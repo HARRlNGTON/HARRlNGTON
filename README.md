@@ -1,10 +1,8 @@
 ![viewcounter](https://komarev.com/ghpvc/?username=HARRlNGTON)
 ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ 
-‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎<p align="center">
-<p> steve harrington of pony tewooown </p>
-</p>‎
+‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎<p align="center"> steve harrington of pony tewooown </p>‎
  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎<p align="center">
-  <img src="https://i.pinimg.com/736x/1c/36/76/1c3676cd7ad3bba150882ca1385c7825.jpg" height="100" width="200" alt="suprenatrl"/>
+  <img src="https://i.pinimg.com/originals/41/9b/fc/419bfc964e89c582989c3fe949806b8c.gif" alt="suprenatrl"/>
   </p>
 ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ 
 <p align="center"> <a href="https://letterboxd.com/hawkins1985/">letterboxd</a>‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ <a href="https://rentry.co/stoneangell">rentry</a>‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ <a href="https://pureharrington.straw.page/">strawpage</a> </p>
