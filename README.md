@@ -2,7 +2,7 @@
 ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ 
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎<p align="center"> steve harrington of pony tewooown </p>‎
  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎<p align="center">
-  <img src="https://i.pinimg.com/originals/41/9b/fc/419bfc964e89c582989c3fe949806b8c.gif" alt="suprenatrl"/>
+  <img src="https://i.pinimg.com/originals/db/7d/ff/db7dff8b2dc43bec3e1adc9d3fcc25c5.gif" alt="suprenatrl"/>
   </p>
 ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ 
 <p align="center"> <a href="https://letterboxd.com/hawkins1985/">letterboxd</a>‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ <a href="https://rentry.co/stoneangell">rentry</a>‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ <a href="https://pureharrington.straw.page/">strawpage</a> </p>
