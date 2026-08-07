@@ -7,5 +7,5 @@ IM STILL REWORKING THIS, someday
   <img src="" alt="" >
 </p>
 <p align="center">
- <a href="https://hawkinstigers.straw.page/">strawpage</a>
+ <a href=""></a>
 </p>
