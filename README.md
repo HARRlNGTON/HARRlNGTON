@@ -7,5 +7,5 @@ IM STILL REWORKING THIS, someday
   <img src="" alt="" >
 </p>
 <p align="center">
- <a href="https://rentry.co/wittfarr">rentry</a>
+ <a href="https://rentry.org/goldenmonster">rentry</a>
 </p>
