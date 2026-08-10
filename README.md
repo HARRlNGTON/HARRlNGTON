@@ -1,10 +1,11 @@
 ![viewcounter](https://komarev.com/ghpvc/?username=HARRlNGTON)
 ‎‎‎
 <p align="center">
-IM STILL REWORKING THIS, someday
+Johnny or Joe
+  <P align="center">18 and schizo
 </p>
 <p align="center">
-  <img width="300" height="240" alt="image" src="https://github.com/user-attachments/assets/14948415-e095-4be5-aac0-158ffd5add4b" />
+  <img  src="https://64.media.tumblr.com/9b8a40fe71d68f6b07cd9b070af305d6/876e5bcbae0a47ea-43/s500x750/79fd1600fe806ae46adebfdf9db6a8c3977f0186.png" alt="lol" width="300" height="240"  />
 </p>
 <p align="center">
  <a href="https://roytillman.carrd.co/">carrd</a>
