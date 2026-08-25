@@ -11,5 +11,5 @@ insane catboy potential
     im jonathan or joseph
  <p align="center"> he her
    <p align="center">
-     check out my <a href="https://www.tumblr.com/blog/realdemogorgon">tumblr</a>  i guess
+     check out my <a href="https://www.tumblr.com/realdemogorgon">tumblr</a>  i guess
 </p>
