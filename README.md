@@ -4,7 +4,7 @@
 just so fricken cute!
 <p align="center">
   
-  <img width="240" height="230" alt="image" src="https://github.com/user-attachments/assets/511a9737-e54e-4825-93b1-dfff29c0afe7" />
+  <img width="240" height="230" alt="image" src="https://i.pinimg.com/736x/60/29/e4/6029e47f6aad3122dcec13fd0bf77eac.jpg" />
 
 </p>
 <p align="center">
