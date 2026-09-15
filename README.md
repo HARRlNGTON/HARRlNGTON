@@ -4,7 +4,7 @@
 just so fricken cute!
 <p align="center">
   
-  <img width="240" height="230" alt="image" src="https://i.pinimg.com/736x/60/29/e4/6029e47f6aad3122dcec13fd0bf77eac.jpg" />
+  <img width="160" height="198" alt="pony-town-steve chan-trot-blinking-padded-4x (1)" src="https://github.com/user-attachments/assets/3bdc2439-1a80-41fc-a1d8-78c30c97d7c8" />
 
 </p>
 <p align="center">
