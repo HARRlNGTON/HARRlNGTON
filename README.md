@@ -1,4 +1,4 @@
-<img scr="https://komarev.com/ghpvc/?HARRlNGTON&label&=keerys!&colour=820101&abbreviated=true"/>
+![](https://komarev.com/ghpvc/?username=HARRlNGTON&label&=keerys!&colour=820101&abbreviated=true)
 ‎‎
 <p align="center">
 just so fricken cute!
