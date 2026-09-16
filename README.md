@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=HARRlNGTON&label=convicted+victims&abbreviated=true&&style=flat-square&color=797979)
 ‎‎
 <p align="center">
-just so fricken cute!
+ponyyowns harrington ^_^
 <p align="center">
   
   <img width="176" height="224" alt="pony-town-sean lockwood-trot-blinking-padded-4x" src="https://github.com/user-attachments/assets/78f898f4-5c31-4850-95ca-31b2ca20ef92" />
