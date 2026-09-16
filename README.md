@@ -1,4 +1,4 @@
-![viewcounter](https://komarev.com/ghpvc/?username=HARRlNGTON)
+<p align="center"> <img src="https://komarev.com/ghpvc/…cutiee&label= ‿‿ 𝘼𝗗𝗩𝗘𝗡𝗧𝗨𝗥𝗘𝗦 %20&color=f7f352&social"alt="HARRlNGTON"
 ‎‎‎
 <p align="center">
 just so fricken cute!
