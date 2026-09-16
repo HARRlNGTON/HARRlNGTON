@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?HARRlNGTON&label&=keerys!&colour=820101)
+![](https://komarev.com/ghpvc/?HARRlNGTON&label&=keerys!&colour=820101&abbreviated=true)
 ‎‎
 <p align="center">
 just so fricken cute!
