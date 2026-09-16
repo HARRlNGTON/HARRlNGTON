@@ -1,5 +1,5 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/…cutiee&label= steve %20&color=f7f352&social"alt="HARRlNGTON"
-‎‎</p>‎
+![](https://komarev.com/ghpvc/?HARRlNGTON&label&=keerys!&colour=820101)
+‎‎
 <p align="center">
 just so fricken cute!
 <p align="center">
