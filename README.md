@@ -1,10 +1,11 @@
 ![](https://komarev.com/ghpvc/?username=HARRlNGTON&label=convicted+victims&abbreviated=true&&style=flat-square&color=797979)
 ‎‎
 <p align="center">
-ponyyowns harrington ^_^
+i like fruits
 <p align="center">
   
-  <img width="196" height="244" alt="pony-town-go tigers-trot-blinking-padded-4x" src="https://github.com/user-attachments/assets/895f186e-7a6a-4398-bb6f-3d48cdeab7f6" />
+ <img width="90" height="120" alt="Screenshot 2026-04-21 022948" src="https://github.com/user-attachments/assets/0b7769ce-7b0a-4b02-a6bf-28014423b9ea" />
+
 
 
 </p>
