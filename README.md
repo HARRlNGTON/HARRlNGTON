@@ -12,3 +12,8 @@
 check out my <a href="https://frail.lol/bmwe23">frail.lol</a>
     
 </p>
+<p align="center">
+<details>
+<summary></summary>
+  also PLEASE dont be scared to interact, im a pretty friendly guy from the start
+</details>
