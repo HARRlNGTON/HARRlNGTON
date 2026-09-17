@@ -10,7 +10,9 @@ check out my <a href="https://frail.lol/bmwe23">frail.lol</a>
 
 <details p align="center">
 <summary></summary>
-  also PLEASE dont be scared to interact, im a pretty friendly guy from the start
+
+  <p style="margin-bottom: 30px;"> </p>
+   <img width="100" height="70" alt="image" src="https://i.pinimg.com/736x/26/2a/e8/262ae89ee594d4be15c6a298128a973a.jpg" />
 </details>
   
 </p>
