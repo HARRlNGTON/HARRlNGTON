@@ -10,9 +10,9 @@ check out my <a href="https://frail.lol/bmwe23">frail.lol</a>
 
 <details p align="center">
 <summary></summary>
-
+  steve harrington corner appreciation
   <p style="margin-bottom: 30px;"> </p>
-   <img width="100" height="70" alt="image" src="https://i.pinimg.com/736x/26/2a/e8/262ae89ee594d4be15c6a298128a973a.jpg" />
+   <img width="150" height="100" alt="gif" src="https://i.pinimg.com/originals/ab/b9/a3/abb9a3190b9423fbd6f70987d5fe0a53.gif" />
 </details>
   
 </p>
