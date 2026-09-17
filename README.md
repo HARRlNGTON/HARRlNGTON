@@ -8,6 +8,6 @@
 
 </p>
 <p align="center">
-check out my <a href="https://guns.lol/fargofx">guns.lol</a>
+check out my <a href="https://frail.lol/bmwe23">frail.lol</a>
     
 </p>
