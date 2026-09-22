@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=HARRlNGTON&label=convicted+victims&abbreviated=true&&style=flat-square&color=797979)
+![](https://komarev.com/ghpvc/?username=HARRlNGTON&label=convicted+victims&style=flat-square&color=797979)
 ‎‎
 
 <p align="center">
