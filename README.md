@@ -10,7 +10,8 @@ check out my <a href="https://frail.lol/bmwe23">frail.lol</a>
 
 <details p align="center">
 <summary></summary>
-  harrington until i finally make my links
+  hi im joseph use she him on me <p style="margin-bottom: 30px;">int with me but i warn you im nonsensical sometimes</p>
+  <p style="margin-top: 10px;">this is a wip bio rn since im working on my shit</p>
   <p style="margin-bottom: 30px;"> </p>
    <img width="150" height="100" alt="gif" src="https://i.pinimg.com/originals/ab/b9/a3/abb9a3190b9423fbd6f70987d5fe0a53.gif" />
 </details>
