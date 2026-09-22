@@ -10,9 +10,9 @@ check out my <a href="https://frail.lol/bmwe23">frail.lol</a>
 
 <details p align="center">
 <summary></summary>
-  <p style="margin-bottom: px;">hi im joseph use she him on me </p>
-  <p style="margin-bottom: px;">int with me but i warn you im nonsensical sometimes</p>
-  <p style="margin-bottom: px;">this is a wip bio rn since im working on my shit</p> 
+  hi im joseph use she him on me
+  int with me but i warn you im nonsensical sometimes
+  this is a wip bio rn since im working on my shit
   
    <p style="margin-bottom: 30px;"><img width="150" height="200" alt="image" src="https://github.com/user-attachments/assets/57f94013-748e-41f5-b3b5-683b46839e99" /></p>
 
