@@ -3,7 +3,7 @@
 
 <p align="center">
   
- <img width="150" height="100" alt="image" src="https://i.pinimg.com/736x/45/34/ab/4534abf9871e746a9fe5a6f5ef4a1125.jpg" />
+ 
 <p align="center">
 check out my <a href="https://frail.lol/bmwe23">frail.lol</a>
 
