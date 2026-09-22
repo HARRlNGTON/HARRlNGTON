@@ -14,7 +14,7 @@ check out my <a href="https://frail.lol/bmwe23">frail.lol</a>
   <p>this is a wip bio rn since im working on my shit</p>
   
   <p style="margin-bottom: 30px;"> </p>
-   <img width="150" height="100" alt="gif" src="https://i.pinimg.com/originals/ab/b9/a3/abb9a3190b9423fbd6f70987d5fe0a53.gif" />
+   <img width="150" height="100" alt="gif" src="https://i.pinimg.com/736x/38/8f/31/388f313d9d0c46badd978e2a32bce8c0.jpg" />
 </details>
   
 </p>
