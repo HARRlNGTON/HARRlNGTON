@@ -3,7 +3,10 @@
 
 <p align="center">
   
- <img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/0864df08-e6d5-4acb-8b04-60d7419d53e5" />
+
+
+ <img width="220" height="300" alt="Screenshot 2026-09-27 015400" src="https://github.com/user-attachments/assets/88f91899-40b0-4f63-a072-a221e5810049" />
+
 
 <p align="center">
 check out my <a href="https://frail.lol/bmwe23">frail.lol</a>
