@@ -1,11 +1,11 @@
 ![](https://komarev.com/ghpvc/?username=HARRlNGTON&label=convicted+victims&style=flat-square&color=797979&abbreviated=true)
 ‎‎
 
+
+<p align="center">daily harrington art</p>
 <p align="center">
-  
-
-
- <img width="220" height="300" alt="Screenshot 2026-09-27 015400" src="https://github.com/user-attachments/assets/88f91899-40b0-4f63-a072-a221e5810049" />
+ <img width="170" height="200" alt="Screenshot 2026-09-30 020330" src="https://github.com/user-attachments/assets/b3a8bbab-95ef-4e6e-9143-1e80f1b95bf9" />
+</p>
 
 
 <p align="center">
