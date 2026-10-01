@@ -1,10 +1,10 @@
-![](https://komarev.com/ghpvc/?username=HARRlNGTON&label=convicted+victims&style=flat-square&color=797979&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=HARRlNGTON&label=keerys+victims&style=flat-square&color=797979&abbreviated=true)
 ‎‎
 
 
-<p align="center">daily harrington art</p>
+<p align="center">yabadaba doobie doo</p>
 <p align="center">
- <img width="170" height="200" alt="Screenshot 2026-09-30 020330" src="https://github.com/user-attachments/assets/b3a8bbab-95ef-4e6e-9143-1e80f1b95bf9" />
+ <img width="170" height="200" alt="Screenshot 2026-09-30 020330" src="https://i.pinimg.com/736x/5a/30/62/5a3062040d46cdff54862c14d1209caa.jpg" />
 </p>
 
 
