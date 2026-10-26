@@ -5,7 +5,7 @@
   
  <div></div>
  
-  <img width="500" height="240" alt="gif" src="https://64.media.tumblr.com/9971d7b752aa613e7067323297555698/tumblr_inline_of7tpvG1UQ1stnhur_500.gif" />
+  <img width="120" height="60" alt="gif" src="https://64.media.tumblr.com/9971d7b752aa613e7067323297555698/tumblr_inline_of7tpvG1UQ1stnhur_500.gif" />
 
   
 <details>
