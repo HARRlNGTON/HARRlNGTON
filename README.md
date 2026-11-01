@@ -7,10 +7,6 @@
  
   <img width="120" height="60" alt="gif" src="https://i.pinimg.com/736x/2e/7a/91/2e7a91863ece3f9adf88f9fff0862d2c.jpg" />
 
-  
-<details>
-  <summary></summary>
-  <i>steve harrington of ponitown</i><div></div>
-</details>
-</div>
+  dont look at my github ill work on it
 
+  </div>
