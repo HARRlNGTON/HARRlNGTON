@@ -7,7 +7,8 @@
   
  <div></div>
  
-  <img width="120" height="60" alt="gif" src="https://i.pinimg.com/736x/2e/7a/91/2e7a91863ece3f9adf88f9fff0862d2c.jpg" />
+  <img width="300" height="410" alt="image" src="https://github.com/user-attachments/assets/8c6b29ae-aee4-4080-8ec7-f575d179dd97" />
+
 
   dont look at my github ill work on it
 
