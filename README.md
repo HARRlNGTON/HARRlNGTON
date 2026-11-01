@@ -10,11 +10,7 @@
   
 <details>
   <summary></summary>
-  <i>Jonathan or joooooey</i><div></div>
-  he him 19<div></div> mental patient at happy volts asylum<div></div>
-  vote jack wilder for president on 2027 elections<div></div>
-                        <div></div>
-  <i>also im steve harrington</i>
+  <i>steve harrington of ponitown</i><div></div>
 </details>
 </div>
 
